@@ -1,4 +1,4 @@
-## 想要联系我，可以直接https://github.com/dcrlove2021/love-freedom/issues/1#issue-1604203408开留言，你所擅长的和想要干的事情；
+## 想要联系我，可以直接 在这个 issue https://github.com/dcrlove2021/love-freedom/issues/1#issue-1604203408 下开留言，你所擅长的和想要干的事情；
 
 
 # 寻找热爱自由的朋友一起工作
